@@ -1,1 +1,2 @@
 # drafts
+merhaba arkadaşlar
